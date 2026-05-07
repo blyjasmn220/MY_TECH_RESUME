@@ -8,7 +8,7 @@ date: April 2025
 
 ---
 
-**480-263-0783 | jasmins.bly@gmail.com | https://github.com/blyjasmn220/Cyber-Projects**
+** linkedin.com/in/jasmine-bly-63b1413b3 | jasmins.bly@gmail.com | https://github.com/blyjasmn220/Cyber-Projects**
 
 ## PROFESSIONAL SUMMARY  
 Motivated IT support and cybersecurity professional with a strong interest in ethical hacking and system security. Experienced in network analysis, troubleshooting, and identifying potential vulnerabilities through hands-on projects. Google Cybersecurity Certified with a commitment to continuous learning and protecting users from evolving cyber threats. Military background with strong problem-solving, discipline, and incident response mindset. Seeking entry-level role where I can support IT operations while growing into a cybersecurity and ethical hacking specialist.  
